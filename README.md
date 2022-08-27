@@ -1,0 +1,2 @@
+# Socket-Set.tool
+1/2" Drive https://www.walmart.com/ip/Hyper-Tough-11-Piece-1-2-Drive-Deep-6-Point-Impact-Metric-Socket-Set/404801721?fulfillmentIntent=Pickup , https://www.walmart.com/ip/Hyper-Tough-11-Piece-1-2-Drive-6-Point-Deep-Impact-SAE-Socket-Set/824092900?fulfillmentIntent=Pickup https://www.harborfreight.com/38-in-12-in-drive-sae-metric-impact-socket-set-37-piece-68011.html ; sch: https://www.harborfreight.com/search?q=impact%20socket%20set
