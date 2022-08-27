@@ -12,5 +12,10 @@
 ### both
 - https://www.harborfreight.com/38-in-12-in-drive-sae-metric-impact-socket-set-37-piece-68011.html
 
+# Chrome
+## 1/4" Drive
+### Metric
+- https://www.harborfreight.com/38-in-14-in-drive-sae-metric-socket-set-40-piece-62843.html
+
 # sch:
 - https://www.harborfreight.com/search?q=impact%20socket%20set
